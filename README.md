@@ -1,4 +1,4 @@
-# 💫 About Me:em desenvovilento com a arte do T.I
+# 💫 About Me: development with the art of IT
 📍developing artistic creativity<br><br>
 
 
